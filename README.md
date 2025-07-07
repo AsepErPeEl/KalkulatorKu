@@ -1,1 +1,1 @@
-Project ke-2, yah simple aja nanti di UP lagi hehe 😁😁😁
+Project ke-2, Kalkulator sederhana aja nanti di UP lagi hehe 😁😁😁
